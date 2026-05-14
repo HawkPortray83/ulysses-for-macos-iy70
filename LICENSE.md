@@ -1,4 +1,4 @@
-#  
+#  vip Ulysses for macOS Addon | widgets + AI assistant is the best Ulysses for macOS addon, featuring widgets and AI assistant. Safe, efficient, and optimized for macOS users.
 
 
 
